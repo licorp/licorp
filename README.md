@@ -1,4 +1,4 @@
-# 👋 Hi, I'm **licorp**
+# 👋 Hi, I'm **Quoc.Nguyen**
 
 <div align="center">
   
